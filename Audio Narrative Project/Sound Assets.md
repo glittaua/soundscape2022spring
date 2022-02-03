@@ -4,7 +4,7 @@
 | Alarm | Sourced from CC |
 | Background music | Sourced from Youtube under fair use |
 | [Halo Battlefield Ambience](https://www.youtube.com/watch?v=b7oPeBIhjU0&list=PLzLj6aXr0U8rvpW_8yGp2L2UDE78Y8Gfl&index=4) by [A Type-46 ISV](https://www.youtube.com/channel/UCIYbUgYDYsE081EuFqG3bag) via Fair Use| Sourced from Youtube under fair use |
-|[Marines vs Covenant](https://www.youtube.com/watch?v=nxOkgWihmRw&list=PLzLj6aXr0U8rvpW_8yGp2L2UDE78Y8Gfl&index=6) by 
+|[Marines vs Covenant](https://www.youtube.com/watch?v=nxOkgWihmRw&list=PLzLj6aXr0U8rvpW_8yGp2L2UDE78Y8Gfl&index=6) by [Lord Shish](https://www.youtube.com/channel/UCJLxUERnHe1Wo3wT61xPsPg) via Fair Use | Sourced from Youtube by Fair Use |
 | Various gun sounds | Sourced from Youtube under fair use |
 | [Go, Go, Go voiceline](https://freesound.org/people/theuncertainman/sounds/402643/) by [theuencertainman](https://freesound.org/people/theuncertainman/) via CC BY 3.0 | [Sourced from CC](http://creativecommons.org/licenses/by/3.0/) 
 | [Cage Rattling](https://freesound.org/people/zatar/sounds/460595/) by [zatar](https://freesound.org/people/zatar/) via CC 0 | [Sourced from CC](http://creativecommons.org/publicdomain/zero/1.0/)|
